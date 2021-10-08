@@ -1,4 +1,4 @@
-                                                       Sushanth Sirupa
+                                               Sushanth Sirupa
 
 Being a sports aficionado, I’ve always had the special interest in the numbers game and the math in general continues to fascinate me. My passion and skill revolve around - Breaking down and solving complex business problems using data. 
 
